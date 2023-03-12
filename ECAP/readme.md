@@ -1,1 +1,0 @@
-ECAP logo
